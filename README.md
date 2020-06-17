@@ -50,7 +50,7 @@ And they said:
 
 Chapter 13 : Maximilien Pierre
 
-Sentence
+At the almost *end* of our story, **kings, queens, santa clause and others** fly away on a little [cloud]().
 
 Chapter 14 : Resa Quinta
 
