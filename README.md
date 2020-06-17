@@ -54,6 +54,6 @@ Sentence
 
 Chapter 14 : Resa Quinta
 
-Sentence
+At the end of the day, the bride was so tired, that she took a shower and lost her tooth in the sink... She was tooth less
 
 END
