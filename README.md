@@ -6,7 +6,7 @@ Once upon a time, in a very strange country
 
 Chapter 2 : Ines Mathy
 
-A cheese walked under the scorching sun
+A **cheese** walked under the **scorching sun**
 
 Chapter 3 : Noemie Uylenbroeck
 
@@ -18,7 +18,7 @@ Out of nowhere... A wild Santa Claus apppears, and threatens to cancel Christmas
 
 Chapter 5 : Eugenie Jissica
 
-Sentence
+The Queen wanted the throne, so she took metters in to her own hands and **killed the King**
 
 Chapter 6 : Soufiane Elkabir
 
