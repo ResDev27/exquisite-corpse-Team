@@ -38,7 +38,7 @@ Sentence
 
 Chapter 10 : Grace Abalisa
 
-Sentence
+One day he would take a pot, another day a picture hanging upon the wall, and a third day a piece of furniture.
 
 Chapter 11 : Bastien Deresteau
 
