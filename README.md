@@ -42,7 +42,7 @@ Sentence
 
 Chapter 11 : Bastien Deresteau
 
-Sentence
+Ul se dirrigea ensuite vers vers l'abîme, où il flut plongé dans les méandres tortueux et obscures de son esprit. 
 
 Chapter 12 : Elodie Goldberg
 
