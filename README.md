@@ -30,7 +30,7 @@ Sentence
 
 Chapter 8 : Alexander Spiesberger
 
-C'est un vache rouge qui regarde la lune.
+A red cow is looking at the moon.
 
 Chapter 9 : Sébastien Meunier
 
