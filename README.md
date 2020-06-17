@@ -30,7 +30,7 @@ Sentence
 
 Chapter 8 : Alexander Spiesberger
 
-Sentence
+C'est un vache rouge qui regarde la lune.
 
 Chapter 9 : Sébastien Meunier
 
