@@ -14,7 +14,7 @@ Sentence
 
 Chapter 4 : Matt Nannetti
 
-Sentence
+Out of nowhere... A wild Santa Claus apppears, and threatens to cancel Christmas!
 
 Chapter 5 : Eugenie Jissica
 
