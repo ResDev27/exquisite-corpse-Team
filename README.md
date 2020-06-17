@@ -6,11 +6,11 @@ Once upon a time, in a very strange country
 
 Chapter 2 : Ines Mathy
 
-Sentence
+A cheese walked under the scorching sun
 
 Chapter 3 : Noemie Uylenbroeck
 
-Sentence
+The king was very wise. He ruled his kingdom with 3 qualities : *Justice, Strength and Mercy* .
 
 Chapter 4 : Matt Nannetti
 
@@ -30,7 +30,7 @@ Sentence
 
 Chapter 8 : Alexander Spiesberger
 
-Sentence
+A red cow is looking at the moon.
 
 Chapter 9 : Sébastien Meunier
 
