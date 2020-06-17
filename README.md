@@ -42,7 +42,7 @@ One day he would take a pot, another day a picture hanging upon the wall, and a 
 
 Chapter 11 : Bastien Deresteau
 
-Ul se dirrigea ensuite vers vers l'abîme, où il flut plongé dans les méandres tortueux et obscures de son esprit. 
+He  was heading towards the storm. Then, he saw something taking shape in the middle of it, whats was it ? why was it appering there ? 
 
 Chapter 12 : Elodie Goldberg
 
@@ -54,6 +54,6 @@ Sentence
 
 Chapter 14 : Resa Quinta
 
-Sentence
+At the end of the day, the bride was so tired, that she took a shower and lost her tooth in the sink... She was tooth less
 
 END
