@@ -34,7 +34,7 @@ A red cow is looking at the moon.
 
 Chapter 9 : Sébastien Meunier
 
-Sentence
+I'm getting tired, but looking at **You** makes me energised again. Thanks for being with me. Let's eat Fries.  
 
 Chapter 10 : Grace Abalisa
 
