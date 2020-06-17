@@ -1,6 +1,6 @@
 # exquisite-corpse-Team
 
-Chapter 1 : Louis Hubien 
+Chapter 1 : Louis Hubien
 
 Once upon a time, in a very strange country
 
@@ -45,8 +45,8 @@ Chapter 11 : Bastien Deresteau
 Sentence
 
 Chapter 12 : Elodie Goldberg
-
-Sentence 
+And they said:
+"If you give this man a ride, sweet family will die"
 
 Chapter 13 : Maximilien Pierre
 
