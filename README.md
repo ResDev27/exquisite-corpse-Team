@@ -22,7 +22,7 @@ Sentence
 
 Chapter 6 : Soufiane Elkabir
 
-Sentence
+I think some people take things to talk about red cow but don't worry it's okay :)
 
 Chapter 7 : Kevin Schoenaers
 
