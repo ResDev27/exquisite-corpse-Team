@@ -18,7 +18,7 @@ Sentence
 
 Chapter 5 : Eugenie Jissica
 
-Sentence
+The Queen wanted the throne, so she took metters in to her own hands and **killed the King**
 
 Chapter 6 : Soufiane Elkabir
 
