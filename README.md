@@ -6,7 +6,7 @@ Once upon a time, in a very strange country
 
 Chapter 2 : Ines Mathy
 
-Sentence
+A cheese walked under the scorching sun
 
 Chapter 3 : Noemie Uylenbroeck
 
