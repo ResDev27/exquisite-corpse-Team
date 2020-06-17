@@ -26,7 +26,7 @@ I think some people take things to talk about red cow but don't worry it's okay 
 
 Chapter 7 : Kevin Schoenaers
 
-Sentence
+**The** Company walked in the mountain,_*** suddenly***_ someone called out to them in order to give them a* new mission*.
 
 Chapter 8 : Alexander Spiesberger
 
