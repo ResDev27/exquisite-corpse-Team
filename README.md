@@ -42,7 +42,7 @@ Sentence
 
 Chapter 11 : Bastien Deresteau
 
-Ul se dirrigea ensuite vers vers l'abîme, où il flut plongé dans les méandres tortueux et obscures de son esprit. 
+He  was heading towards the storm. Then, he saw something taking shape in the middle of it, whats was it ? why was it appering there ? 
 
 Chapter 12 : Elodie Goldberg
 
