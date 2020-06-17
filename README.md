@@ -10,7 +10,7 @@ Sentence
 
 Chapter 3 : Noemie Uylenbroeck
 
-The king was very wise. He ruled his kingdom with 3 qualities : *Justice, Strength and Mercy* .
+The king of this country was very wise. He ruled his kingdom with 3 qualities : *Justice, Strength and Mercy* .
 
 Chapter 4 : Matt Nannetti
 
