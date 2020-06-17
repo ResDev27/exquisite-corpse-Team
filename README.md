@@ -10,11 +10,11 @@ A cheese walked under the scorching sun
 
 Chapter 3 : Noemie Uylenbroeck
 
-The king was very wise. He ruled his kingdom with 3 qualities : *Justice, Strength and Mercy* .
+The king of this country was very wise. He ruled his kingdom with 3 qualities : *Justice, Strength and Mercy* .
 
 Chapter 4 : Matt Nannetti
 
-Sentence
+Out of nowhere... A wild Santa Claus apppears, and threatens to cancel Christmas!
 
 Chapter 5 : Eugenie Jissica
 
@@ -22,7 +22,7 @@ Sentence
 
 Chapter 6 : Soufiane Elkabir
 
-Sentence
+I think some people take things to talk about red cow but don't worry it's okay :)
 
 Chapter 7 : Kevin Schoenaers
 
@@ -38,7 +38,7 @@ Sentence
 
 Chapter 10 : Grace Abalisa
 
-Sentence
+One day he would take a pot, another day a picture hanging upon the wall, and a third day a piece of furniture.
 
 Chapter 11 : Bastien Deresteau
 
@@ -54,6 +54,6 @@ Sentence
 
 Chapter 14 : Resa Quinta
 
-Sentence
+At the end of the day, the bride was so tired, that she took a shower and lost her tooth in the sink... She was tooth less
 
 END
