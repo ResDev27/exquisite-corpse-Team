@@ -45,6 +45,7 @@ Chapter 11 : Bastien Deresteau
 He  was heading towards the storm. Then, he saw something taking shape in the middle of it, whats was it ? why was it appering there ? 
 
 Chapter 12 : Elodie Goldberg
+
 And they said:
 "If you give this man a ride, sweet family will die"
 
